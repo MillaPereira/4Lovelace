@@ -31,6 +31,9 @@ Dessa forma visamos propiciar a nutrição adequada de crianças durante o perí
 
 ### Perfil
 
+![image](https://user-images.githubusercontent.com/74369384/139596576-afcabe03-e1b8-465e-9fe9-a2d261578155.png)
+
+
 
 
 
