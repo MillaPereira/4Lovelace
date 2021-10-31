@@ -15,6 +15,8 @@ Dessa forma visamos propiciar a nutrição adequada de crianças durante o perí
 
 ### Área de locação
 
+![image](https://user-images.githubusercontent.com/74369384/139595941-4fc8e49c-3ad6-4760-b8a6-91504e57dbf4.png)
+
 ### Comunidade 
 
 ### Área de incentivo a doação
