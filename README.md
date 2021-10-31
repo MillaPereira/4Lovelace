@@ -19,6 +19,10 @@ Dessa forma visamos propiciar a nutrição adequada de crianças durante o perí
 
 ### Comunidade 
 
+![image](https://user-images.githubusercontent.com/74369384/139596361-3cb9050b-e7c7-4c99-8570-edcc65d67d8d.png)
+
 ### Área de incentivo a doação
+
+
 
 
