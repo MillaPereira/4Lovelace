@@ -3,7 +3,7 @@
 
 Apresenta:
 
-<center>![image](https://user-images.githubusercontent.com/74369384/139596674-f5d71611-e9c8-4fa6-91cc-974b9027b93c.png)</center>
+![image](https://user-images.githubusercontent.com/74369384/139596674-f5d71611-e9c8-4fa6-91cc-974b9027b93c.png)
 
 
 ## Problema
